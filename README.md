@@ -1,2 +1,3 @@
 # TitleDomination
 Coming Soon...
+[Chris Dominguez](http://www.chrisanthony.me "Chris Anthony Dominguez")
